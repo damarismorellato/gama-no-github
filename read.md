@@ -1,0 +1,2 @@
+O curso está sendo incrivel até o momento, já tentei diversas vezes, fazer cursos a distancia e nunca tive exito, como no Gama Academy.
+Comecei nessa area a pouco tempo, então tudo que sabia até agora aprendi na prática, com as pessoas me falando que era daquela forma que se fazia, mas algumas coisas não fazia muito sentido. Agora estou tendo a parte teórica, tudo está mais claro e tendo sentido!
